@@ -5,3 +5,5 @@
   - Mafioso / Don Sonnellino / Eunoia's Right Hand Man (FSKN + DG/FZ)
 
 </details>
+
+I am both voidsharing 4 both, doubles please DNI, I block freely </3
